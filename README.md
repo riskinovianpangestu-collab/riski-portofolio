@@ -1,0 +1,2 @@
+# riski-portofolio
+portofolio 
